@@ -8,7 +8,7 @@ Olá ! Bem-vindo ao meu livro de receitas :clap:
 
 - Pavê
 
-- Pastel de carne Lasanha
+- Pastel de carne
 
   
 
